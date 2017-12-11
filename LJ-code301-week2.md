@@ -1,0 +1,1 @@
+Week 2 went great! working with IX was great she and i worked very well together and solved our labs and codewars didnt have any problems this week at all loving the class so far!
