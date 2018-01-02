@@ -1,0 +1,1 @@
+This week went pretty smooth for having been as interrupted by break as it was but nick and i managed pretty well. SQL is feeling tough right now but mike made a good point that we are learning a new language and this is how it felt when we were first learning JS but we managed. another successful week.
